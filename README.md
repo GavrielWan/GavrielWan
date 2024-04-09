@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GavrielWan
-- 👀 I’m interested in reading and taking care of my pets.
-- 🌱 I’m currently learning Y8 stuff.
+- 👀 I’m interested in reading books.
+- 🌱 I’m currently learning IGCSE.
 - 💞️ I’m looking to collaborate on ??.
 - 📫 How to reach me just email me at gavrielwan@gmail.com
 
